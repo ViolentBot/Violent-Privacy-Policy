@@ -40,8 +40,8 @@
 
 ## My Question is not in the list
 
-- Join our [support server](https://discord.gg/dwsmseAAp)
-- Contact Us on discord [server](https://discord.gg/dwsmseAAp)
+- Join our [support server](https://discord.gg/wuWr5HJnN2)
+- Contact Us on discord [server](https://discord.gg/wuWr5HJnN2)
 - Server invite is invaild, all channels are locked mail us
 - Mails - violentdevelopment@gmail.com
 
